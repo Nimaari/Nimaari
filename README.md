@@ -1,3 +1,3 @@
-**Honestly**, all information about me can be found on my website, but GitHub was persistent so I added this.
+You may find out more information about me on my website below.
 
 🌸 https://www.nimari.tk/ 🍄
